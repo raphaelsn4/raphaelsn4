@@ -1,4 +1,9 @@
-### Hi there 👋
+### Hi there 👋 My name is Raphael and I live in Germany. Welcome to my repository, it#s nice to have you here.
+
+You can communicate with me in:
+
+
+
 
 <!--
 **raphaelsn4/raphaelsn4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
