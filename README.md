@@ -1,4 +1,4 @@
-### Hi there 👋! My name is Raphael and I live in Gerany. Welcome to my profile! It's nice to have you here!
+### Hi there 👋! My name is Raphael and I live in Germany. Welcome to my profile! It's nice to have you here!
 You can communicate with me in:<br><br>
 :de:<br>
 🇧🇷<br>
